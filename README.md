@@ -1,0 +1,52 @@
+# ReoNa – Alive
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I've walked the road of lies
+and misery
+何も残ってないな
+Scars of the past is
+what makes me who I am
+溢れ落ちてく 落ちてく
+風が全て熱を奪って行く
+I feel my heart aching inside
+何を守って 傷つけて
+今まで生きてきたんだろう
+To find the truth in everything
+理不尽と戦って
+You see 間違いじゃないと
+'Cause I'm still alive
+I feel alive, with this pain
+I'll be the only one
+with a voice
+声を上げたって返事もない
+Holding out my hand
+but no one seems to care
+終わりはまだ遠いかい
+ゆらゆらゆらり揺れる陽炎
+And burning from the inside out
+また失って 苛立って
+全て嫌ってきたんだろう
+凍えて 焼かれて 不条理に抗って
+You see 忘れたくないよ
+'Cause I'm still alive
+I feel alive, with this pain
+動いてく世界に 引き裂かれたって
+誰かに届くように
+あなたに届くように
+何度嘆いても 蓋しても
+それでも消えなかったんだろう
+With all the scars within me
+後悔も握り締めて
+You see 間違いじゃないよ
+I feel alive
+Alive
+何を守って 傷つけて
+今まで生きてきたんだろう
+To find the truth in everything
+理不尽と戦って
+You see 間違いじゃないと
+'Cause I'm still alive
+I feel alive, with this pain
+```
